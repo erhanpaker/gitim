@@ -1,0 +1,5 @@
+git öğren
+git
+
+
+destwyeweh
